@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAAR690207HTSRGD05
+CAAR690207HTSRGD05
